@@ -54,8 +54,7 @@ Kendo , Snowgrave , Audra ! or any other name :/  <img width="26" height="16" al
 Tyvm , @Kaotown , @cosplaytown !
 
 
-
-this may be updated more...
+gonna be redone , but I first how to figure out how GitHub works 🫡
 
 
 
