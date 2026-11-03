@@ -4,57 +4,55 @@
 
 
 
-<img width="950" height="50" alt="IMG_9107" src="https://github.com/user-attachments/assets/fa79542b-3611-4906-9c14-2c8969919c0b" />
+
+
+<p align="center">
+	<img width="50" height="50" alt="tumblr-9acd9841321285165dc9a7d458952470-2649a36d-75" src="https://github.com/user-attachments/assets/4cf14f2e-82bd-4509-bc93-f66e1e32dbee" />
+<img width="800" height="50" alt="tumblr_368e665946d721b875aa6069e52add1a_9b1ba917_2048" src="https://github.com/user-attachments/assets/3cef2159-f70a-4a47-895b-e83df1b5a923" /><img width="50" height="50" alt="tumblr-9acd9841321285165dc9a7d458952470-2649a36d-75" src="https://github.com/user-attachments/assets/4cf14f2e-82bd-4509-bc93-f66e1e32dbee" />
+
+<p align="center">
+	<img width="700" height="600" alt="Untitled59_20261103125408-removebg-preview" src="https://github.com/user-attachments/assets/17680d39-1b0c-48ef-972a-7824930d6aca" />
+
+
+
+<p align="center">
+	<img width="800" height="40" alt="goqbmq" src="https://github.com/user-attachments/assets/a8b6068b-aa91-4bbd-a22e-229152b1d50f" />
 
 
 
 
-<img width="1002" height="750" alt="Untitled18_20260929203205" src="https://github.com/user-attachments/assets/6a9c59a0-b8de-4a12-9f9a-32d42602e508" />
+<p align="left">
+	<img width="383" height="338" alt="8094092-middle-removebg-preview" src="https://github.com/user-attachments/assets/04a2c41f-577f-49b9-9614-180ef694d97c" /> <div align="left"> 
+		
+<img width="20" height="20" alt="tumblr-9acd9841321285165dc9a7d458952470-2649a36d-75" src="https://github.com/user-attachments/assets/6832054a-b245-4349-b966-e781a29a3fab" /> 
 
+<br>
 
+<details>
+  <summary><ins>BYI</ins></summary>
+  I am sarcastic af , so I'm gonna make comments w a rude , or mean tone. Please do note I never actually mean any of what I say in this tone ! if I ever do mean something , I *will* put /srs at the end , so if it isn't there, than you all good! (socials check still needed)
 
+ </div>
+</details>
 
+<br>
 
-<img width="135" height="15" alt="IMG_9107" src="https://github.com/user-attachments/assets/dcf8cc66-035f-4b58-acaf-d2188659da41" />
+<details>
+  <summary><ins>PonyTown</ins></summary>
 
-
-
-
-
-
-
-<img width="20" height="20" alt="mo86" src="https://github.com/user-attachments/assets/7ab2d5a5-05ba-4744-8a56-08bc32513eb6" />
-
-
-
-
-
-
-Kendo , Snowgrave , Audra ! or any other name :/  <img width="26" height="16" alt="00pgwa" src="https://github.com/user-attachments/assets/dd04e378-f068-463e-9c10-c9ca9ff3e167" />
-<img width="26" height="16" alt="bvthmi" src="https://github.com/user-attachments/assets/74e1f9b5-2639-4fc1-9873-e1a65f837fa3" />
-
-
-<img width="88" height="31" alt="IMG_9956" src="https://github.com/user-attachments/assets/d37bb5dc-006a-45e3-a340-005661a7e4c8" />
-<img width="88" height="31" alt="IMG_9955" src="https://github.com/user-attachments/assets/6bfcc793-0883-4501-8aaf-8ba1c31ee8cb" />
-
+  <div align="center">
+  </p>Please DNC any of my skins unless a friends W permission , and ask for inspo , friends can use inspo for skins whenever.
+	  <p>C+H heavily enc , but please do not cover me unless we are friends.
+	  <p>Usually offtab, afk , or something else , if you do plan to int and I don't resp. Whisper me, I still may not see it though...
+	  <p>Dont come up to one of my cosplays, and start trying to RP , I'm all fine with our ponies being in the same fandom or you showing me you're also in the fandom!, but don't turn it into a RP please
+	  <p>Dont take it personally if I don't respond at all, I may just not want to, or still don't notice it ! 
 
 
 
 
 
 
--  Offtab , and late resp almost always
--  Check the prns page , or strawpage for DNI/BYI !
--  Int welcomed , and enc ! Don't be shy, I'd love to meet you ^^
 
-<img width="20" height="20" alt="89" src="https://github.com/user-attachments/assets/5c2392e0-3212-4604-915d-c75f9847b4b1" />
+----
 
-<img width="135" height="15" alt="IMG_9107" src="https://github.com/user-attachments/assets/5b35745b-9e09-4640-822e-8de177b73f72" />
-
-Tyvm , @Kaotown , @cosplaytown !
-
-
-gonna be redone , but I first how to figure out how GitHub works 🫡
-
-
-
+worlds laziest GitHub , I will never put to much effort in these things bro
