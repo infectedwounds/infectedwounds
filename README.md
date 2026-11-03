@@ -13,25 +13,31 @@
 <img width="20" height="20" alt="tumblr-9acd9841321285165dc9a7d458952470-2649a36d-75" src="https://github.com/user-attachments/assets/6832054a-b245-4349-b966-e781a29a3fab" /> 
 
 <br>
-
-<details>
+  <div align="center">
+	  <details>
   <summary><ins>BYI</ins></summary>
   I am sarcastic af , so I'm gonna make comments w a rude , or mean tone. Please do note I never actually mean any of what I say in this tone ! if I ever do mean something , I *will* put /srs at the end , so if it isn't there, than you all good! (socials check still needed)
 
- </div>
-</details>
+<div></div>
 
-<br>
 
-<details>
+
+
+
+
+
+
+
+<div align="center">
+	<details>
   <summary><ins>PonyTown</ins></summary>
-
-  <div align="center">
   </p>Please DNC any of my skins unless a friends W permission , and ask for inspo , friends can use inspo for skins whenever.
 	  <p>C+H heavily enc , but please do not cover me unless we are friends.
 	  <p>Usually offtab, afk , or something else , if you do plan to int and I don't resp. Whisper me, I still may not see it though...
 	  <p>Dont come up to one of my cosplays, and start trying to RP , I'm all fine with our ponies being in the same fandom or you showing me you're also in the fandom!, but don't turn it into a RP please
 	  <p>Dont take it personally if I don't respond at all, I may just not want to, or still don't notice it ! 
+
+
 
 
 
