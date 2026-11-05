@@ -10,8 +10,7 @@
 
 <p align="center">
 	<img width="383" height="338" alt="8094092-middle-removebg-preview" src="https://github.com/user-attachments/assets/04a2c41f-577f-49b9-9614-180ef694d97c" /> <div align="left"> 
-		
-<img width="20" height="20" alt="tumblr-9acd9841321285165dc9a7d458952470-2649a36d-75" src="https://github.com/user-attachments/assets/6832054a-b245-4349-b966-e781a29a3fab" /> 
+
  
 
 
