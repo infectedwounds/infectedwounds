@@ -12,7 +12,8 @@
 	<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&width=435&lines=If+you+rub+salt+into+a+wound+%2C;Of+course%2C+It+hurts%2C+It+hurts;But+rubbing+sugar+into+a+wound%2C;is+surely+going+to+hurt+to%2C;The+kindness+of+that+girl+on+my+wound;Already+hurts%2C+It+hurts+%2C;An+inferioity+complex+%2C;A+sense+of+defeat+%2C;Please+just+disappear+%2C;Because+it+makes+me+feel+so+empty!" alt="Typing SVG" /></a>
 	
 <p align="center">
-	 <img width="501" height="498" alt="Screenshot_2026-11-02_11 39 30_AM-removebg-preview" src="https://github.com/user-attachments/assets/af981de6-ef60-42db-bd5a-54fe75f5cb84" />
+	<img width="383" height="338" alt="8094092-middle-removebg-preview" src="https://github.com/user-attachments/assets/baa04ae4-9477-4fa5-9eca-7f99876d6583" />
+
 
 
  
